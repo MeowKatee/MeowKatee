@@ -2,13 +2,7 @@
 ### Hi, friends
 
 --------------------
-❤️ [Poly000](https://github.com/poly000)
+❤️ [mokurin000](https://github.com/mokurin000)
 --------------------
 
 ![:meowkatee](https://count.getloli.com/get/@:meowkatee)
-
---------------------
-
-[Sponsor me](https://afdian.net/a/poly000)
-
-
